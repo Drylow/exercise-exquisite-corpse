@@ -29,3 +29,7 @@ Nos cœurs battaient à tout rompre, et chaque pas semblait nous rapprocher du d
 Les rires se transformèrent soudain en toussotements quand un singe éternua si fort qu’il tomba de sa branche.  
 Les arbres, vexés, se mirent à protester en faisant tomber des noix de coco au hasard.  
 Quant à la jungle… elle avait l’air beaucoup moins menaçante depuis qu’elle portait des lunettes de soleil et me lançait des *finger guns*.
+
+
+
+PERFECT !!!!!
