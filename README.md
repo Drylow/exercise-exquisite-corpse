@@ -23,4 +23,9 @@ Nos cœurs battaient à tout rompre, et chaque pas semblait nous rapprocher du d
 
 ###Soudain, entre deux battements, tous les bruits de la jungle s'arrêtèrent.
 ###Un corps d'ombre, couvert de mosuse avec de nombreux yeux d'ambre se glissait face à nous, entre les troncs.
-###D'un rire démoniaque en sortait, accompagné d'une multitude de ricanement comme si les arbres l'accompagnait. Ma jungle elle-même prenait forme...
+###D'un rire démoniaque en sortait, accompagné d'une multitude de ricanement comme si les arbres l'accompagnait. Ma jungle elle-même prenait forme...  
+**Suite drôle — Markdown**
+
+Les rires se transformèrent soudain en toussotements quand un singe éternua si fort qu’il tomba de sa branche.  
+Les arbres, vexés, se mirent à protester en faisant tomber des noix de coco au hasard.  
+Quant à la jungle… elle avait l’air beaucoup moins menaçante depuis qu’elle portait des lunettes de soleil et me lançait des *finger guns*.
