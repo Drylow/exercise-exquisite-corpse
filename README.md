@@ -19,4 +19,4 @@ Quelque chose d’inconnu était là, tout près.
 
 Un souffle glacial nous frôla le cou, et un rire étouffé résonna entre les arbres.  
 On sentit quelque chose nous suivre, invisible mais palpable.  
-Nos cœurs battaient à tout rompre, et chaque pas semblait nous rapprocher du danger.
+Nos cœurs battaient à tout rompre, et chaque pas semblait nous rapprocher du danger. hihihi
