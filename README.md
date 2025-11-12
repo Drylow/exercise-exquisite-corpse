@@ -10,3 +10,9 @@ Les plantes bougeaient un peu, comme si elles étaient vivantes.
 On a vu des traces sur le sol —  
 **ce n’étaient pas des traces d’animaux ni d’humains**.  
 Quelque chose d’inconnu était là, tout près.
+
+
+**La jungle nous regarde.**  
+*Fais attention et reste sur tes gardes.*  
+
+**RENTRE CHEZ TOI AVANT QU’IL NE SOIT TROP TARD !**
